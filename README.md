@@ -1,1 +1,1 @@
-# mathematical-principles-of-the-philosophy-of-mind-EN
+# Mathematical Principles of the Philosophy of  Mind
